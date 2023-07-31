@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Poprumari
-- 👀 I’m Recruiter/Sourcer at EvoTalents
+- 👀 I’m Recruiter/Sourcer 
 - 📍 Locate in Dnipro, Ukraine
 - 📫 Telegram @Poprumari
 
